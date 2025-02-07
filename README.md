@@ -12,7 +12,13 @@
 
 
  سورس کد اختصاصی 
+
+
+ 
 بجای کلمه ی ##token## توکن ربات خودتون رو بزارید و وب هوک ست کنید. 
+
+
+
 حمایت :(Ton) 
 
 UQCSbhZ2yxQIOQM4eHxBwPPTholmIyaqZCtYow4swyA8VQoB

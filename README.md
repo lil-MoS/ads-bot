@@ -26,3 +26,11 @@
 حمایت :(Ton) 
 
 UQCSbhZ2yxQIOQM4eHxBwPPTholmIyaqZCtYow4swyA8VQoB
+
+
+
+- - -
+برای خرید سورس کد کامل و قابلیت های اضافی (پنل مدیریت)
+
+
+🆔 [@HELLBLADE66](https://t.me/hellblade66)

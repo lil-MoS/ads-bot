@@ -19,6 +19,10 @@
 
 
 
+برای عملکرد بهتر ربات ابتداع ربات رو داخل کانال خود ادمین و ادد کنبد. 
+
+
+
 حمایت :(Ton) 
 
 UQCSbhZ2yxQIOQM4eHxBwPPTholmIyaqZCtYow4swyA8VQoB
